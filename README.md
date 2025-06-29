@@ -44,3 +44,7 @@ If I join a team, Im locked in.
 ---
 
 I’m not here to look smart. I’m here to learn, build, and do shit that actually works.
+
+## CONTACT ME
+ransomww329@proton.me
+Discord -- ransomww329
